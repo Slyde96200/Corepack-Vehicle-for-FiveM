@@ -7,7 +7,7 @@ Please note that some of the vehicles in the pack may not be functional, and tha
 For the curious, there are more packs to come very soon, and if this pack is well-received by the community over the next few weeks, I will be uploading an ENORMOUS pack of perfectly fine-tuned vehicles (420 vehicles, to be exact!)
 
 Thank you for choosing my pack, and happy roleplaying!
-
+Regular updates will be made
 
 Français
 
@@ -19,3 +19,4 @@ Veuillez noter que certains des véhicules du pack peuvent ne pas être fonction
 Pour les curieux, d'autres packs arrivent très bientôt, et si ce pack est bien accueilli par la communauté au cours des prochaines semaines, je vous ferez parvenir un pack ÉNORME de véhicules parfaitement réglés (420 véhicules, pour être exact!)
 
 Merci d'avoir choisi mon pack, et bon RP !
+Des mises à jours seront effectués régulièrement
